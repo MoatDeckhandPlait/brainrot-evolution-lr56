@@ -1,4 +1,4 @@
-
+Experience brainrot evolution like never before with brainrot evolution ultimate Script, the #1 Script. Includes infinite resources and auto-heal for
 
 
 
